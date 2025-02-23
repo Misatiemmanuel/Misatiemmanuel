@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...backend development
 - 🌱 I’m currently learning ...backend development
 - 💞️ I’m looking to collaborate on ...app development project
-- 📫 How to reach me ...issahmachoka@gmail.com
+- 📫 How to reach me .. issahmachoka@gmail.com
 - 😄 Pronouns: ...He/Mr
 - ⚡ Fun fact: ...easy going
 
